@@ -1,0 +1,1 @@
+all buses are delayed and youve missed your first day at work
